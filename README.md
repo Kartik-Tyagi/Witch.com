@@ -104,4 +104,4 @@ To customize for future birthdays:
 
 ---
 
-Made with ❤️ for Ala's 24th Birthday
+Made with 🪄✨ for Ala's 24th Birthday
